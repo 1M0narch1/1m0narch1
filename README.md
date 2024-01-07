@@ -1,3 +1,3 @@
 - 📫 **Email**: [monarhovicila@gmail.com](mailto:monarhovicila@gmail.com)
 - 💬 **Telegram**: [@OOOMonarch](https://t.me/OOOMonarch)
-- 🌐 **LinkedIn**: [ILYA MONARHOVICH]([https://www.linkedin.com/in/victor-varenik-73324122a/](https://www.linkedin.com/in/илья-монархович-987802288/)https://www.linkedin.com/in/илья-монархович-987802288/)
+- 🌐 **LinkedIn**: [ILYA MONARHOVICH](https://www.linkedin.com/in/илья-монархович-987802288/)https://www.linkedin.com/in/илья-монархович-987802288/)
